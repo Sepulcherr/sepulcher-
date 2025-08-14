@@ -2,9 +2,9 @@
 ![image alt](https://github.com/Sepulcherr/sepulcher-/blob/e46e86d2ee84136ebc818013a107f03df9eeb11c/CpipdrO.png)
 ![image alt](https://github.com/Sepulcherr/sepulcher-/blob/4f57de0028b830e380b05627563fcd94fb313063/a7810be1104bfcf3b05ccac08381d0e6.gif)
 
-  Տ𝘦𝙥𝘶𝘭𝘤𝘩𝘦𝘳´𝘴  𝗍𝗁𝖾 𝘯𝘢𝘮𝘦. 
+       Տ𝘦𝙥𝘶𝘭𝘤𝘩𝘦𝘳´𝘴  𝗍𝗁𝖾 𝘯𝘢𝘮𝘦. 
 
-𝖯𝙧𝙤𝙣𝙤𝙪𝙣𝙨: A𝘯𝘺 :^)
+         𝖯𝙧𝙤𝙣𝙤𝙪𝙣𝙨: A𝘯𝘺 :^)
 
 ![image alt](https://github.com/Sepulcherr/sepulcher-/blob/7735df1374d185ce8c7608f04229b1220b17191b/IMG_2829.gif) ᗷᗴ ᗩᗯᗩᖇᗴ:
 
