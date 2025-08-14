@@ -1,2 +1,1 @@
-# sepulcher-
-CpipdrO.png
+# sepulcher
